@@ -48,6 +48,7 @@ Once confirmed, you can log in and enjoy the full LearnE experience.
 
 
 ✅ Why You Should Try LearnE :
+
 If you're consistent — just 15 minutes a day — LearnE will:
 
 Improve your fluency and vocabulary
